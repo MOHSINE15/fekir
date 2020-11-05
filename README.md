@@ -1,0 +1,2 @@
+# fekir
+its god  programe
